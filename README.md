@@ -3,6 +3,4 @@ Just another repository
 
 Hi
 
-I like coding and rock music
-
-Gamer 
+Hareesh here,Iam a gamer and like coding and rock music
